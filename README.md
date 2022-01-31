@@ -1,2 +1,2 @@
 # sandrine-Mukendi
-My porfolio
+My portfolio
